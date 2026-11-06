@@ -1,0 +1,1 @@
+# jafung-pemprov-gorontalo
